@@ -33,5 +33,6 @@ The site is designed for ease of exploration. Use the navigation bar to jump to 
 
 I'm open to feedback, collaboration, or just a chat. Reach out through the contact form or the social media links on the site.
 
-Thank you for visiting and taking this journey into my life and work. Enjoy your stay!
+Thank you for visiting!
 
+http://christiannyamekye.com
